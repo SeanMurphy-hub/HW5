@@ -1,2 +1,0 @@
-Sean Murphy
-Chicago Cubs
